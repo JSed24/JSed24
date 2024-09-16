@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm [Your Name] 😄
+# Hi there! 👋 I'm John Sedrick Sarol! 😄
 
 ### Welcome to my GitHub profile! ✨ Let's get to know each other a little better. 😊
 
